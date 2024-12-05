@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @n-rao-48
+- 👀 I’m interested in web development, machine learning, robotics.
+- 🌱 I’m currently learning C++ language, data structures and algorithms
+- 💞️ I’m looking to collaborate on web apps, research.
+- 📫 How to reach me raonakshatra77@gmail.com , https://www.linkedin.com/in/nakshatra-rao-150a46288
+- 😄 Pronouns: She/ Her!
+- ⚡ Fun fact: I am a professional Odissi Dancer.
